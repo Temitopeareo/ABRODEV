@@ -1,7 +1,7 @@
 //═══════════════════════════════════════════════════════//
 //
-//                              BLACK PANTHER MD ..., MADE BY IBRAHIM ADAMS
-//                                    IBRAHIM TECH BEST TECH EVER
+//                              ABRO DEV MD ..., MADE BY ABRO TECH
+//                                    ABRO MD SOON THE BEST BOT EVER
 //
 //════════════════════════════//
 
