@@ -10,7 +10,7 @@
  
 ![Aaaaand many more](res/readme/context.gif)
 
- ## Join my channel for updates and get free cc
+ ## DM ME NOW ON WHATSAPP FOR FREE CC AND UPDATES
 
 
 <a href="https://wa.me/2348100151048?text=Hi+Bro--+I+Need+Help.+I+messaged+you+from+Abro-Md+Repo" target="_blank">
